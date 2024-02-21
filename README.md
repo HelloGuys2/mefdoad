@@ -5,6 +5,3 @@ ingage
 fdsfsdf
 2323
 qq
-lol
-!
-lolo
