@@ -15,7 +15,3 @@ fd,klok
 
 dfsdfg342
 dfkkkt
-fdkjlkj
-fljhgjg
-kiluggregr
-fhjhjghjghj
